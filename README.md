@@ -66,7 +66,7 @@ Unlike outdated tools, our platform is built to handle modern word challenges. I
 
 ## Try It Now!
 
-Don’t let scrambled letters hold you back. Explore the **Word Unscrambler Tool 2025** and elevate your word game skills today. Visit [wordscramble.us](https://wordunscambler.org/) and start unscrambling!
+Don’t let scrambled letters hold you back. Explore the **Word Unscrambler Tool 2025** and elevate your word game skills today. Visit [wordscambler.org](https://wordunscambler.org/) and start unscrambling!
 
 ---
 
